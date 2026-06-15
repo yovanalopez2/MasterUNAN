@@ -12,9 +12,9 @@ Silvia_ https://github.com/silvia-mendoza22
 
 Carlos Lopez - https://github.com/cocosoficial
 
-Emily Loaisia - https://githu.com/emily2009-git
+Emily Loaisia - https://github.com/emily2009-git
 
-Fernanda Matindz - https:/github.com/fer007514-ai
+Fernanda Matinez - https://github.com/fer007514-ai
 
 #Ingeniera
 Johhana Hernández - https://github.com/
