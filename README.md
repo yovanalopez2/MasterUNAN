@@ -16,6 +16,6 @@ Emily Loaisia - https://github.com/emily2009-git
 
 Fernanda Matinez - https://github.com/fer007514-ai
 
-#Ingeniera
-Johhana Hernández - https://github.com/
+Yovana López -
+https://github.com/yovanalopez975 
 
